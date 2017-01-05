@@ -8,6 +8,8 @@ After signing a record deal with Epic Records in 2014, Trainor rose to fame with
 
 Prominently influenced by the 1950s and 1960s eras in music, Trainor's music has been noted for its retro style aesthetic. Common themes in her lyrics include subjects of modern womanhood, body image, and empowerment. Trainor's work has been recognized with several awards and nominations, including a Grammy Award, Music Business Association's Breakthrough Artist of the Year accolade and two Billboard Music Awards.
 
+*photo*
+
 ## I’ll Sing With You (2011)
 ```
   1. I’l Sing With You
